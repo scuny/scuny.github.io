@@ -1,2 +1,0 @@
-# scuny.github.io
-imeucarro
